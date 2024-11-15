@@ -1,1 +1,1 @@
-# Lead_Education_Case_STudy
+# Lead_Education_Case_Study
